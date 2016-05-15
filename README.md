@@ -2,7 +2,9 @@
 
 ## Ideas y permisos
 
-Esta es una idea que ya tiene más de veinte años conmigo. He aprendido a creer que las ideas existen por sí mismas. Nosotros simplemente le damos soporte y permitimos que fluya su existencia. Si no honramos la idea, la musa que nos la inspira simplemente se va, a cantarle a otro oído que sepa escuchar.
+Esta es una idea que ya tiene más de veinte años conmigo.
+
+He aprendido que las ideas existen por sí mismas. Que nosotros simplemente le damos soporte y permitimos que fluya su existencia. Que si no honramos la idea, la musa que nos la inspira simplemente se va, a cantarle a otro oído que sepa escuchar.
 
 Creo que muchas personas pueden ser inspiradas por una misma idea y lograr presentar a los demas diferentes versiones. A lo largo de estos años, he sentido ideas similares en otras obras que he disfrutado.
 
